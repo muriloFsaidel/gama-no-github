@@ -1,1 +1,0 @@
-Curso é objetivo e descomplicado.
